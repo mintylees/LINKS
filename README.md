@@ -18,8 +18,15 @@ https://www.investing.com/analysis/these-etfs-were-on-fire-in-2020--with-more-po
 
 https://valueinvesting.io/NVDA/valuation/dcf-growth-exit-10y
 
+
+todo items
+
 https://ditto.fm/ballers-talliastorm
 https://dittomusic.com/en/pricing - 19 pounds
+
+
+https://anasaea.com/pricing/gallery
+
 
 0
 0
