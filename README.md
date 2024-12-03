@@ -1,3 +1,7 @@
+PORN
+
+https://www.youporn.com/watch/17134353/the-hot-secretary-prefers-anal-sex/
+
 # LINKS
 
 https://simplywall.st/stocks/us/semiconductors/nasdaq-nvda/nvidia
@@ -12,7 +16,14 @@ https://thematic.bit.ai/auth/login
 https://www.investing.com/analysis/etf-winners-and-losers-in-2020-200549160
 https://www.investing.com/analysis/these-etfs-were-on-fire-in-2020--with-more-possible-upside-in-2021-200549247
 
+https://valueinvesting.io/NVDA/valuation/dcf-growth-exit-10y
 
+https://ditto.fm/ballers-talliastorm
+https://dittomusic.com/en/pricing - 19 pounds
+
+0
+0
+0
 
 
 JPMorgan U.S. Momentum Factor ETF (NYSE:JMOM) — up 26.7% YTD, covered here)
