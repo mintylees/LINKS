@@ -17,6 +17,7 @@ https://www.investing.com/analysis/etf-winners-and-losers-in-2020-200549160
 https://www.investing.com/analysis/these-etfs-were-on-fire-in-2020--with-more-possible-upside-in-2021-200549247
 
 https://valueinvesting.io/NVDA/valuation/dcf-growth-exit-10y
+https://en.macromicro.me/charts/28907/NASDAQ-Index-vs-Dollar-Index
 
 
 todo items
